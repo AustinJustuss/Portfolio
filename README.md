@@ -1,3 +1,3 @@
 - Hi, I'm Austin Justus!
 - I am a Master's of Science in Business Analytics graduate from the University of Tennessee in Knoxville
-- You can reach me via email at austin.p.justus@gmail.com OR LinkedIn: https://www.linkedin.com/in/austin-justus/
+- Contact me at austin.p.justus@gmail.com or https://www.linkedin.com/in/austin-justus/
